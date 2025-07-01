@@ -123,6 +123,28 @@
 - Worked on Deloitte Virtual Internship tasks — gained practical exposure to business and tech workflows.  
 - Balanced technical learning with hands-on professional development.
 
+---
+
+## Day 16: June 30, 2025  
+- Day spent mostly distracted — excessive time on phone and unproductive scrolling.  
+- No technical learning completed today.  
+- Recognized the need to cut distractions and refocus on goals.  
+- Mental reset in progress — committing to a disciplined routine ahead.
+
+---
+
+## Day 17: July 1, 2025  
+- Another unproductive day — lacked focus, primarily spent time on phone and entertainment.  
+- Watched a movie to unwind but acknowledged the slip in learning consistency.  
+- On the positive side, received a certificate in Generation I program by FRAGE — added to learning portfolio.  
+- Declared reset — study routine resumes tomorrow with full focus.  
+- Next up:
+  - Complete pending one-shot revision  
+  - Take up CN one-shot  
+  - Begin React one-shot  
+- Back to consistency, one block at a time.
+
+
 
 
 
