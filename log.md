@@ -144,6 +144,16 @@
   - Begin React one-shot  
 - Back to consistency, one block at a time.
 
+---
+
+## Day 18: July 2, 2025  
+- Struggled with focus — ended up wasting most of the day on phone and scrolling.  
+- Couldn't make meaningful study progress during the day.  
+- Realized the importance of getting back on track — aiming to recover lost time by covering some content at night.  
+- Will begin with pending one-shot sessions to rebuild learning momentum.  
+- Reminder to reset priorities and create a distraction-free environment for the next day.
+
+
 
 
 
