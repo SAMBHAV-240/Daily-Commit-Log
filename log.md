@@ -153,6 +153,22 @@
 - Will begin with pending one-shot sessions to rebuild learning momentum.  
 - Reminder to reset priorities and create a distraction-free environment for the next day.
 
+---
+
+## Day 19: July 3, 2025  
+- Faced technical issues with my laptop — couldn’t continue with studies or project work.  
+- Day mostly went into troubleshooting and managing backup access.  
+- Unplanned downtime, but kept a note of pending learning tasks.
+
+---
+
+## Day 20: July 4, 2025  
+- Laptop repair and recovery continued today — unable to resume studies fully.  
+- Treated this as a necessary break to reset and recharge mentally.  
+- Ready to get back into action from tomorrow.  
+- First focus: pending one-shots, React learning, and daily commit routine.
+
+
 
 
 
